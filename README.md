@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a projects.
 - 📫 How to reach me monraysethibe@gmail.com.
 - 😄 Pronouns: He.
-- ⚡ Fun fact: Billions are being poured into AI investments.
+- ⚡ Fun fact: Billions are being poured into AI.
 
 <!---
 Duwayne728/Duwayne728 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
